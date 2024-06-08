@@ -1,1 +1,1 @@
-Projetinho para estudos e vai ser desenvolvido aqui
+Projetinho para estudos e vai ser desenvolvido aqui. LOL
